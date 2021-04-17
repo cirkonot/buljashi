@@ -1,2 +1,1 @@
-## Welcome to GitHub Pages
-
+## Welcome Buljashi od 10tkata
